@@ -1,1 +1,2 @@
-# rayhanarrazy.README
+HELLO IM A NEWBIE PROHRAMMER 
+404 Not Found
